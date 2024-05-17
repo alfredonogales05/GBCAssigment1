@@ -1,1 +1,0 @@
-# GBCAssigment1
